@@ -14,6 +14,9 @@
 > $\color{Magenta}{\textsf{i occazionally uze 'z' inztead of 's' ok? ok, idk itz cool}}$
 
 
+> $\color{Magenta}{\textsf{im kiiiinda like zource, but i WILL NOT int with medkit doublez, unlezz we're friends, then its good. thumbs up}}$
+
+
 
 
 <img width="2048" height="141" alt="tumblr_a1bffbc6a195e156acf58b76134997f2_08667e6d_2048" src="https://github.com/user-attachments/assets/64c3c232-0a89-44ac-99c9-95968c1364b1" />
