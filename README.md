@@ -9,5 +9,5 @@ _test_
 
 
 <img width="1920" height="897" alt="tumblr_9a052ad0e36aea0d57edd540dc5d5dbf_fb2e4fe2_2048" src="https://github.com/user-attachments/assets/50972d62-f784-4bec-b673-198b8e808602" />
-<sup> > this coding took like ages and i will most likely forget after im done... </sup> 
+<sup> ~~this coding took like ages and i will most likely forget after im done...~~ </sup> 
 
