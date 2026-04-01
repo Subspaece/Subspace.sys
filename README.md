@@ -19,8 +19,9 @@
 
 > $\color{Magenta}{\textsf{I alzo reallyreally like muzicalz, my favouritez r: Legally blonde, In the heightz [2005 verzion, duh], The zizter act!!11!!1}}$
 
+![tumblr_bea739a8f05a33c8d29591101a8def40_df611f2d_2048](https://github.com/user-attachments/assets/c990196a-bd2e-439a-99dc-182ea1257574)
 
 
 <img width="2048" height="141" alt="tumblr_a1bffbc6a195e156acf58b76134997f2_08667e6d_2048" src="https://github.com/user-attachments/assets/64c3c232-0a89-44ac-99c9-95968c1364b1" />
-<sup> uhh dont azk how i did the coloured text, i forgot how i did it . . . </sup>
+### $\color{Magenta}{\textsf{uhh dont azk how i did the coloured text, i forgot how i did it . . .}}$ ###
 
