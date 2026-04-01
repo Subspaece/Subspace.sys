@@ -2,10 +2,13 @@
 
 # $\color{Magenta}{\textsf{Subspace}}$
 
-### wip
-idc if im not like source i dont rlly like it anyway lalalalalal
-**test** 
-_test_
+linear-gradient(90deg,
+
+    #FF0368    0.0%,
+    #FFFFFF   25.0%,
+    #FFFFFF   50.0%,
+    #FFFFFF   75.0%,
+    #FF0368  100.0%)
 
 
 <img width="1920" height="897" alt="tumblr_9a052ad0e36aea0d57edd540dc5d5dbf_fb2e4fe2_2048" src="https://github.com/user-attachments/assets/50972d62-f784-4bec-b673-198b8e808602" />
