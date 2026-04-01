@@ -18,7 +18,7 @@
 > > $\color{Magenta}{\textsf{i dont rlly like zhippers or people roleplaying with me, but unlezz we're friendz or its zilly, idm,}}$
 
 
-> $\color{Magenta}{\textsf{I alzo reallyreally like muzicalz, my favouritez r: Legally blonde, In the heightz [2005 verzion, duh], The zizter act!!11!!1}}$
+> $\color{Magenta}{\textsf{I alzo reallyreally like muzicalz, my favouritez r: Legally blonde, In the heightz [2005 verzion, duh], The zizter act!!11!!1 ppl who like muzicalz int with me plzplzplzplzplz ily}}$
 
 ![tumblr_bea739a8f05a33c8d29591101a8def40_df611f2d_2048](https://github.com/user-attachments/assets/c990196a-bd2e-439a-99dc-182ea1257574)
 
