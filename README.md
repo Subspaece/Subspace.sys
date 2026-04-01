@@ -3,7 +3,8 @@
 # ![tumblr_f34bbecd88dbb386a4b4b62ddf3a89bf_bb663a70_2048](https://github.com/user-attachments/assets/bfe1d7bc-80e8-4205-8475-20c555d4bd59)
 
 
-# $\color{Magenta}{\textsf{"My greatezt invention!!"}}$ # ![tumblr_e5e166514bb0f4d631725acd826b4fc6_e5187c84_75](https://github.com/user-attachments/assets/eacf05f4-f65c-4da7-81d2-5a859eddd425)
+# $\color{Magenta}{\textsf{"My greatezt invention!!"}}$ ![tumblr_91bf4bacebc3ad4632bc7c28443e8700_abd21119_75](https://github.com/user-attachments/assets/28924740-1f17-4b3d-926a-6b28da66e565)
+
 
 
 
