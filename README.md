@@ -24,5 +24,5 @@
 
 <img width="2048" height="141" alt="tumblr_a1bffbc6a195e156acf58b76134997f2_08667e6d_2048" src="https://github.com/user-attachments/assets/64c3c232-0a89-44ac-99c9-95968c1364b1" />
 
-### $\color{Magenta}{\textsf{"i kinda forgot how to do the coloured text..."}}$ ###
+### $\color{Magenta}{\textsf{i kinda forgot how to do the coloured text...}}$ ###
 
