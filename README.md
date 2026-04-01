@@ -3,7 +3,8 @@
 # ![tumblr_f34bbecd88dbb386a4b4b62ddf3a89bf_bb663a70_2048](https://github.com/user-attachments/assets/bfe1d7bc-80e8-4205-8475-20c555d4bd59)
 
 
-## $\color{Magenta}{\textsf{"My greatezt invention!!"}}$
+## $\color{Magenta}{\textsf{"My greatezt invention!!"}}$ ![tumblr_e5e166514bb0f4d631725acd826b4fc6_e5187c84_75](https://github.com/user-attachments/assets/7cd1f843-2fa7-46c4-9193-6616038154df)
+
 
 
 > $\color{Magenta}{\textsf{Wazzup !!}}$
