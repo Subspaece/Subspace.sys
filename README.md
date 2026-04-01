@@ -18,7 +18,8 @@
 > > $\color{Magenta}{\textsf{i dont rlly like zhippers or people roleplaying with me, but unlezz we're friendz or its zilly, idm,}}$
 
 
-> $\color{Magenta}{\textsf{I alzo reallyreally like muzicalz, my favouritez r: Legally blonde, In the heightz [2005 verzion, duh], The zizter act!!11!!1 ppl who like muzicalz int with me plzplzplzplzplz ily}}$
+> $\color{Magenta}{\textsf{I alzo reallyreally like muzicalz, my favouritez r: Legally blonde, In the heightz [2005 verzion, duh], The zizter act!!11!!1}}$
+> $\color{Magenta}{\textsf{ppl who like muzicalz int with me plzplzplzplzplz ily}}$
 
 
 
