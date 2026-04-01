@@ -9,6 +9,8 @@
 
 > $\color{Magenta}{\textsf{Wazzup !!}}$
 > $\color{Magenta}{\textsf{Subspace ; They / Them + Neos}}$
+
+
 > $\color{Magenta}{\textsf{i occazionally uze 'z' inztead of 's' ok? ok, idk itz cool}}$
 
 
