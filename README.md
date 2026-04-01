@@ -3,7 +3,7 @@
 # $\color{Magenta}{\textsf{Subspace}}$
 
 linear-gradient(90deg,
-
+    /* Edit this gradient at https://eltos.github.io/gradient/#0:FF0368-25:FFFFFF-50:FFFFFF-75:FFFFFF-100:FF0368 */
     #FF0368    0.0%,
     #FFFFFF   25.0%,
     #FFFFFF   50.0%,
