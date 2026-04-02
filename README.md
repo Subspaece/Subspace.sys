@@ -23,7 +23,7 @@
 
 
 > $\color{Magenta}{\textsf{One extra thing, i DONT vent. even i am even crying anyway, dont expect me to vent, no one takez me zeriouzly anyway.}}$
-<sup> $\color{Magenta}{\textsf{/kinda aimed}}$ <\sup>
+<sup> $\color{Magenta}{\textsf{/kinda aimed}}$
 
 
 
