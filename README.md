@@ -15,7 +15,7 @@
 
 
 > $\color{Magenta}{\textsf{im kiiiinda like zource, but kinda not? idk, but i WILL NOT int with medkit doublez, unlezz we're friends, then its good. thumbs up}}$
-> $\color{Magenta}{\textsf{adding onto thiz, i dont mind other Phighting cozplayerz, BEZIDEZ Medkit and Vineztaff doublez.}}$
+> $\color{Magenta}{\textsf{adding onto thiz, i dont mind other Phighting cozplayerz, BEZIDEZ Medkit and Vineztaff doublez, idk it juzt feelz weird..}}$
 
 
 > > $\color{Magenta}{\textsf{i dont rlly like zhippers or people roleplaying with me, but unlezz we're friendz or its zilly, idm,}}$
