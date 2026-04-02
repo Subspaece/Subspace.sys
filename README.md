@@ -26,6 +26,8 @@
 <sup> $\color{Magenta}{\textsf{/kinda aimed}}$
 
 
+> $\color{Magenta}{\textsf{Thiz is still probably a wip, anything elze i wanna add will be added zoon}}$
+
 
 
 ![tumblr_bea739a8f05a33c8d29591101a8def40_df611f2d_2048](https://github.com/user-attachments/assets/c990196a-bd2e-439a-99dc-182ea1257574)
