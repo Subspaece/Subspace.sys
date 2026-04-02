@@ -22,7 +22,7 @@
 > $\color{Magenta}{\textsf{ppl who like muzicalz int with me plzplzplzplzplz ily}}$
 
 
-> $\color{Magenta}{\textsf{One extra thing, i DONT vent. even i am even crying anyway, dont expect me to vent, no one takez me zeriouzly anyway.}}$
+> $\color{Magenta}{\textsf{One extra thing, i DONT vent. even IF i am crying, dont expect me to vent, no one takez me zeriouzly anyway.}}$
 <sup> $\color{Magenta}{\textsf{/kinda aimed}}$
 
 
