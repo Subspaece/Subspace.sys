@@ -1,6 +1,17 @@
 <img width="2048" height="281" alt="tumblr_84110321cd1ea3d6f78003ca96e1658e_bb27c989_2048" src="https://github.com/user-attachments/assets/a27f5b33-eb8d-4a6f-804b-d0dc17472592" />
 
+<sup> \color{Magenta}{\textsf{Possible eyestrain warning? idk it gave us a headache /blurry}}$
+
+<sup> \color{Magenta}{\textsf{if ur still reading this, this is ur last warning /blurry}}$
+
+
+
+
+
+
 # ![tumblr_f34bbecd88dbb386a4b4b62ddf3a89bf_bb663a70_2048](https://github.com/user-attachments/assets/bfe1d7bc-80e8-4205-8475-20c555d4bd59)
+
+
 
 
 # $\color{Magenta}{\textsf{"My greatezt invention!!"}}$
