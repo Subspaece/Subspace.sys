@@ -56,6 +56,15 @@
 ![tumblr_bea739a8f05a33c8d29591101a8def40_df611f2d_2048](https://github.com/user-attachments/assets/c990196a-bd2e-439a-99dc-182ea1257574)
 
 
+
+
+<img width="146" height="52" alt="Screenshot 2026-04-09 10 20 53" src="https://github.com/user-attachments/assets/195dd6ab-3fd4-4a6f-b31e-9bd9747fd513" />
+$\color{Magenta}{\textsf{677777}}$
+
+
+
+
+
 <img width="2048" height="141" alt="tumblr_a1bffbc6a195e156acf58b76134997f2_08667e6d_2048" src="https://github.com/user-attachments/assets/64c3c232-0a89-44ac-99c9-95968c1364b1" />
 
 ### $\color{Magenta}{\textsf{i kinda forgot how to do the coloured text...}}$ ###
